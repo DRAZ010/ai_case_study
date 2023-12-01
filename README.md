@@ -1,4 +1,4 @@
-# OpenAI: A Forefront of AI Innovation
+# Company of Focus: OpenAI
 
 ## Overview and Origin
 
